@@ -5,7 +5,7 @@
 - 📫 How to reach me :
 by our email:
 portlan.net@gmail.com
-by our tel:
+ or by our tel:
 +98 21- 284 281 54
 
 <!---
